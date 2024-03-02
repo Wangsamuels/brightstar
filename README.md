@@ -1,0 +1,2 @@
+# brightstar
+Just bright
